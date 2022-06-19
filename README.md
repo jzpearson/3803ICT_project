@@ -1,1 +1,2 @@
 # 3803ICT_project
+This is the Github for my final project. I have struggled immensely with finishing this on time, and it is close to complete. I have requested a couple days of extension, and hope to finish this by the 21 June. Thank you for your consideration and I hope you grant my extension.
